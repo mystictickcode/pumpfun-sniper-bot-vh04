@@ -1,4 +1,4 @@
-# 
+# new pump.fun sniper bot | price-impact-analysis + rug-pull-detection offers the most advanced pump.fun sniper bot, with price-impact-analysis and rug-pull-detection. Ideal for
 
 
 
